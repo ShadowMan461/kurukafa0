@@ -1,1 +1,1 @@
-# kurukafa0
+# Bakma boşa
